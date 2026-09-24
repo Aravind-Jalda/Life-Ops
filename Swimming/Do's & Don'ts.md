@@ -1,4 +1,4 @@
-## ✅ Do’s of Swimming ..
+## ✅ Do’s of Swimming
 
 * Start with proper warm-up
 * Practice breathing separately if needed
