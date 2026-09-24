@@ -2,7 +2,7 @@
 
 ### Physical Benefits
 
-* Full body workout (arms, legs, core) ..
+* Full body workout (arms, legs, core)
 * Improves cardiovascular health ❤️
 * Builds endurance and stamina
 * Low impact → less stress on joints
