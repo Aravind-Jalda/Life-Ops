@@ -10,7 +10,7 @@ Cycling is a low-impact, high-benefit activity that improves physical fitness, m
 
 ### 1. Bike Fit (Very Important)
 
-* Seat height: Your leg should be slightly bent at the lowest pedal point
+* Seat height: Your leg should be slightly bent at the lowest pedal point ..
 * Handlebar: Comfortable reach without bending too much
 * Posture: Straight back, relaxed shoulders
 
