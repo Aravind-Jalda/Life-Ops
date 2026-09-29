@@ -4,7 +4,7 @@
 
 * Improves cardiovascular health ❤️
 * Strengthens legs and core
-* Helps in weight loss and fat reduction ..
+* Helps in weight loss and fat reduction
 * Increases stamina and endurance
 
 ### Mental Benefits
