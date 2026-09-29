@@ -1,7 +1,7 @@
 ## ✅ Do’s of Cycling
 
 * Always wear a helmet
-* Start with short distances and gradually increase
+* Start with short distances and gradually increase ..
 * Maintain proper posture
 * Stay hydrated before and after rides
 * Follow traffic rules
