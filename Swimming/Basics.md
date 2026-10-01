@@ -2,7 +2,7 @@
 
 ## 🧭 Introduction
 
-Swimming is a full-body, low-impact exercise that improves strength, endurance, and mental relaxation. This document captures the fundamentals, techniques, and personal practices to build consistency and improve performance.
+Swimming is a full-body, low-impact exercise that improves strength, endurance, and mental relaxation. This document captures the fundamentals, techniques, and personal practices to build consistency and improve performance. ..
 
 ---
 
