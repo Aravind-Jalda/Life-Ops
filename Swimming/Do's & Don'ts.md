@@ -1,6 +1,6 @@
 ## ✅ Do’s of Swimming
 
-* Start with proper warm-up
+* Start with proper warm-up ..
 * Practice breathing separately if needed
 * Focus on technique over speed
 * Stay relaxed in water (avoid panic)
