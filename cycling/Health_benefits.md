@@ -1,6 +1,6 @@
 ## 💪 Health Benefits of Cycling
 
-### Physical Benefits ..
+### Physical Benefits
 
 * Improves cardiovascular health ❤️
 * Strengthens legs and core
