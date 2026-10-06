@@ -1,4 +1,4 @@
-# 🏊 Swimming Basics (test line)
+# 🏊 Swimming Basics
 
 ## 🧭 Introduction
 
