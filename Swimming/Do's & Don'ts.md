@@ -1,4 +1,4 @@
-## ✅ Do’s of Swimming (test line)
+## ✅ Do’s of Swimming
 
 * Start with proper warm-up
 * Practice breathing separately if needed
