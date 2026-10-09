@@ -1,5 +1,4 @@
-## ✅ Do’s of Cycling (test message)
-
+## ✅ Do’s of Cycling
 * Always wear a helmet
 * Start with short distances and gradually increase
 * Maintain proper posture
