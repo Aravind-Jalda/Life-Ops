@@ -1,4 +1,4 @@
-## 💪 Health Benefits of Cycling (test message)
+## 💪 Health Benefits of Cycling 
 
 ### Physical Benefits
 
