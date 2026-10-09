@@ -1,4 +1,4 @@
-# 🚴 Cycling Basics (test message)
+# 🚴 Cycling Basics
 
 ## 🧭 Introduction
 
