@@ -1,4 +1,4 @@
-# 🏊 Swimming Basics (test message)
+# 🏊 Swimming Basics
 
 ## 🧭 Introduction
 
