@@ -1,2 +1,2 @@
 # Life-Ops
-My lifestyle and information will be saved here (test message)
+My lifestyle and information will be saved here
