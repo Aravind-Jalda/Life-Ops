@@ -2,7 +2,7 @@
 
 ### 1. Choose Based on Purpose
 
-* City riding → Hybrid bike ..
+* City riding → Hybrid bike
 * Long distance → Road bike
 * Rough terrain → Mountain bike
 
