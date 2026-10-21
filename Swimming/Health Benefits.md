@@ -1,4 +1,4 @@
-## 💪 Health Benefits of Swimming (test message)
+## 💪 Health Benefits of Swimming
 
 ### Physical Benefits
 
