@@ -1,4 +1,4 @@
-## 🚲 Tips to Buy a Cycle (test message 123) 
+## 🚲 Tips to Buy a Cycle
 
 ### 1. Choose Based on Purpose
 
