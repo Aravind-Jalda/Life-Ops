@@ -1,6 +1,6 @@
 ## 🏊 Tips & Tricks (Beginner Friendly)
 
-### 1. Learn Floating First (test message)
+### 1. Learn Floating First
 
 * Floating builds confidence in water
 * Makes learning strokes easier
