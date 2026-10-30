@@ -1,4 +1,4 @@
-## 🏊 Tips & Tricks (Beginner Friendly)
+## 🏊 Tips & Tricks (Beginner Friendly) (test message)
 
 ### 1. Learn Floating First
 
