@@ -1,4 +1,4 @@
-# 🚴 Cycling Basics (test message)
+# 🚴 Cycling Basics
 ## 🧭 Introduction
 
 Cycling is a low-impact, high-benefit activity that improves physical fitness, mental clarity, and overall endurance. This document captures the fundamentals, best practices, and personal guidelines for consistent cycling.
