@@ -1,1 +1,1 @@
-Swimming related files are saved here (test message)
+Swimming related files are saved here
